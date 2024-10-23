@@ -1,2 +1,2 @@
 # torunyusuf
- a portfolio about me
+Updated for the renewed version of torunyusuf.com.
